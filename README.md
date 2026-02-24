@@ -1,5 +1,5 @@
 # 💫 About Me:
- Hi, I am Aman Shakya<br>CSE, 3rd year Engineering Student
+ Hi, I am Aman Shakya<br>CSE, 3rd year Engineering Student...
 
 
 ## 🌐 Socials:
